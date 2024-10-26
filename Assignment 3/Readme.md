@@ -1,1 +1,1 @@
-This assignment took the lif eout of us and I dont have the solution of Q1. that is left to you, O Seeker of the Truth!
+This assignment took the life out of us and I don't have the solution of Q1. That is left to you, O Seeker of the Truth!
